@@ -9,4 +9,4 @@
 ‎‎ㅤㅤ[𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://stibsin.atabook.org) ㅤ<img alt="Untitled1265_20260812155619 (2)" src="https://github.com/user-attachments/assets/2e19a2b0-d41a-4fe3-9667-366b06f64968" />
 ㅤ  [𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎](https://stibsin.straw.page)
 
-ㅤㅤㅤ  $\textsf{\color{#49515c}formerly un-gravitify ok..? ok..}\$
+ㅤㅤㅤ $\large\textsf{\color{#49515c}formerly un-gravitify ok..? ok..}\$
