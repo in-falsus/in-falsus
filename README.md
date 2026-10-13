@@ -1,6 +1,6 @@
-<img src="https://c.tenor.com/2_kJrX7rWNMAAAAC/tenor.gif)" width="300" height="300" />
+<img src="https://c.tenor.com/2_kJrX7rWNMAAAAC/tenor.gif)" width="345" height="345" />
 
-ㅤㅤ[𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://stibsin.atabook.org) ㅤ<img alt="Untitled1265_20260812155619 (2)" src="https://github.com/user-attachments/assets/2e19a2b0-d41a-4fe3-9667-366b06f64968" />
+ㅤㅤ[𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://stibsin.atabook.org) ㅤ<img alt="aaa" src="https://github.com/user-attachments/assets/0c4a9109-bdcd-4680-a833-91c80ff88af2" />
 ㅤ  [𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎](https://yggthrasir.straw.page)
 
                    
