@@ -10,4 +10,4 @@
   </a>
 </p>
 
-ㅤㅤ $\large\textsf{\color{#49515c}formerly un-gravitify ok..? ok..}\$
+ㅤㅤ $\textsf{\color{#49515c}formerly un-gravitify ok..? ok..}\$
