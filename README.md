@@ -11,3 +11,5 @@
 </p>
 
 ㅤㅤㅤ $\textsf{\color{#49515c}formerly un-gravitify ok..? ok..}\$
+
+ㅤㅤ<img src="https://c.tenor.com/M1U_MIbJ-QwAAAAd/tenor.gif)" width="240" height="120" />
