@@ -10,6 +10,6 @@
   </a>
 </p>
 
-ㅤㅤㅤ $\textsf{\color{#49515c}formerly un-gravitify ok..? ok..}\$
+ㅤㅤㅤㅤ $\textsf{\color{#49515c}formerly un-gravitify ok..? ok..}\$
 
  ㅤ    ㅤ <img src="https://c.tenor.com/M1U_MIbJ-QwAAAAd/tenor.gif)" width="245" height="120" />
