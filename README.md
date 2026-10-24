@@ -12,6 +12,6 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\textsf{\color{#c7c7c7}formerly un-gravitify ok..? ok..}\$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\textsf{\color{#272f3d}formerly un-gravitify ok..? ok..}\$
 
 
