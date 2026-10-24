@@ -12,6 +12,6 @@
   </a>
 </p>
 
-ㅤㅤㅤㅤㅤ $\textsf{\color{#c7c7c7}formerly un-gravitify ok..? ok..}\$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\textsf{\color{#c7c7c7}formerly un-gravitify ok..? ok..}\$
 
  ㅤ  ㅤㅤㅤㅤㅤㅤ <img src="https://c.tenor.com/M1U_MIbJ-QwAAAAd/tenor.gif)" width="245" height="120" />
