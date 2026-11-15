@@ -10,8 +10,7 @@ WIPPPP WIP WIP WIP
 <img alt="image" src="https://github.com/user-attachments/assets/207c22e9-9029-42e3-8bdf-d8295736b1a2" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://stibsin.atabook.org) <img alt="aaa" src="https://github.com/user-attachments/assets/bdda14e3-04a1-419f-b706-2bae5693422b" />
-[𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://yggthrasir.straw.page)
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ [𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://stibsin.atabook.org) <img alt="image" src="https://github.com/user-attachments/assets/ac442cd5-afdf-4f5d-98fd-50bfe1fc63a5" />[𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://yggthrasir.straw.page)
 
 
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤ ㅤㅤ   ㅤㅤㅤㅤ    <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=r5pjwxk0kh15p1n5zfk9rtsyn&redirect=true">
