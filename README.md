@@ -13,7 +13,7 @@ WIPPPP WIP WIP WIP
 [𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://yggthrasir.straw.page)
 
 
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤ ㅤㅤ  ㅤㅤ  ㅤㅤㅤ<a href="https://spotify-github-profile.kittinanx.com/api/view?uid=r5pjwxk0kh15p1n5zfk9rtsyn&redirect=true">
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤ ㅤㅤ  ㅤㅤ  ㅤ<a href="https://spotify-github-profile.kittinanx.com/api/view?uid=r5pjwxk0kh15p1n5zfk9rtsyn&redirect=true">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=r5pjwxk0kh15p1n5zfk9rtsyn&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 </p>
